@@ -16,7 +16,7 @@
 
 ↶*ೃ✧˚. ❃ ↷ ˊ- 
 
-![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=6svafdbwch9wtlgjdweknkfer)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6svafdbwch9wtlgjdweknkfer&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=6svafdbwch9wtlgjdweknkfer&redirect=true)
 
 ↶*ೃ✧˚. ❃ ↷ ˊ- 
 
