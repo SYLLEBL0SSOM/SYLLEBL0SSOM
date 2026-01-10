@@ -20,7 +20,7 @@
 
 ↶*ೃ✧˚. ❃ ↷ ˊ- 
 
-![](https://64.media.tumblr.com/96d2428a81cdb92f27aaaf781afb763e/ef3796930a4ac20c-26/s75x75_c1/432450f82bfd1f671e88e21a4c517cc721732dcd.gifv) `very basic dni (ie;pedo/zoo/homophobes/transphobes/racists)` , `-16` , `endogenic systems` , `hoyoverse fandom` , `vivzie pop fandom , sysmeds` 
+![](https://64.media.tumblr.com/96d2428a81cdb92f27aaaf781afb763e/ef3796930a4ac20c-26/s75x75_c1/432450f82bfd1f671e88e21a4c517cc721732dcd.gifv) `very loose and basic dni` , `-16` , `endogenic systems` , `hoyoverse fandom` , `vivzie pop fandom , sysmeds` 
 
 ![](https://64.media.tumblr.com/96d2428a81cdb92f27aaaf781afb763e/ef3796930a4ac20c-26/s75x75_c1/432450f82bfd1f671e88e21a4c517cc721732dcd.gifv) `i am MOSTLY sitting on safe server with friends, i will not be interacting outside of party chat` , `whispers are perpetually turned off and so are friend requests` 
 
