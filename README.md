@@ -4,11 +4,11 @@
 ![](https://i.imgur.com/TE75uM3.gif)
 
 ## ![](https://64.media.tumblr.com/02a89f8f33d116682a7e0ee53e78a4b2/d5f3956d46975a7f-e5/s75x75_c1/dfa26f348c7fb2c219171e94c2980fdec37aba71.gifv) *Corrin / Ame* ![](https://64.media.tumblr.com/b64c3f8a0e0ebbfe87e1e3d219eb162e/d5f3956d46975a7f-b9/s75x75_c1/e548209a68836139ed9c4ed4bd6941c575cb4880.gifv)
-ׂ╰┈➤ ![](https://64.media.tumblr.com/4d62f561e0d2330eacb04c60557d72b8/d75bba3560d424e3-97/s75x75_c1/a0503ca780529350a16c2beefd51536f799029d7.gifv) `25` ❤︎ `Enby Lesbian`
+ׂ╰┈➤ ![](https://64.media.tumblr.com/4d62f561e0d2330eacb04c60557d72b8/d75bba3560d424e3-97/s75x75_c1/a0503ca780529350a16c2beefd51536f799029d7.gifv) `25` ❤︎ `Enby Queer`
 
 ׂ╰┈➤ `ISTP` ❤︎ `9w1` ❤︎ `Mel-Sag` ![](https://64.media.tumblr.com/1c34d63d43b94d17d0ee4d6c45134da8/ef3796930a4ac20c-68/s75x75_c1/71dfcbb894a0b64039300ed60efbd404002eb935.gifv)
 
-ׂ╰┈➤  ![](https://64.media.tumblr.com/6f066b885ca723d23609e8a7e8a7d1d4/23c9d1d5cf9aada9-88/s75x75_c1/cc908d5a2580eb97f460b962a91f6a753d01e843.webp) `ravus nox fleuret yume [ nonsharing ]` ❤︎ `ILMGF 16.06.24`
+ׂ╰┈➤  ![](https://64.media.tumblr.com/6f066b885ca723d23609e8a7e8a7d1d4/23c9d1d5cf9aada9-88/s75x75_c1/cc908d5a2580eb97f460b962a91f6a753d01e843.webp) `ravus nox fleuret yume [ nonsharing ]`
 
 ↶*ೃ✧˚. ❃ ↷ ˊ-
 
